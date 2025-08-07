@@ -1,0 +1,1 @@
+# afghan_pishgam.com
